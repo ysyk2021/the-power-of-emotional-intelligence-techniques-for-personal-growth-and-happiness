@@ -1,5 +1,4 @@
-Chapter 9: Overcoming Obstacles to Emotional Intelligence: Common Obstacles to Emotional Intelligence
-=====================================================================================================
+# Common Obstacles to Emotional Intelligence
 
 Developing emotional intelligence is a journey that requires commitment and effort. However, there are common obstacles that can hinder progress. In this chapter, we will discuss these obstacles and strategies for overcoming them.
 

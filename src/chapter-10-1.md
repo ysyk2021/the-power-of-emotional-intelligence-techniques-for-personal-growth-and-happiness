@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Recap of Key Points
-===========================================
+# Recap of Key Points
 
 In this book, we have explored the importance of emotional intelligence in personal growth and happiness. Here is a recap of some key points to remember:
 

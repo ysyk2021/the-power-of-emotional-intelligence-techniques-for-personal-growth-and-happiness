@@ -1,5 +1,4 @@
-Chapter 6: Enhancing Relationships: Strategies for Building Positive Relationships
-==================================================================================
+# Strategies for Building Positive Relationships
 
 Emotional intelligence is critical in building and maintaining positive relationships. In this chapter, we will discuss strategies for building positive relationships.
 

@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Definition of Emotional Intelligence
-=============================================================
+# Definition of Emotional Intelligence
 
 Emotional intelligence is a critical aspect of personal growth and happiness. In this chapter, we will define emotional intelligence and its importance.
 

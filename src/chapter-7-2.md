@@ -1,5 +1,4 @@
-Chapter 7: Improving Communication Skills: Techniques for Improving Communication Skills
-========================================================================================
+# Techniques for Improving Communication Skills
 
 Effective communication is a critical aspect of emotional intelligence. It involves expressing oneself clearly and respectfully, while also being open to feedback from others. In this chapter, we will discuss techniques for improving communication skills.
 

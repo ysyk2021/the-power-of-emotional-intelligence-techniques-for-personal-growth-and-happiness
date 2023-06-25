@@ -1,5 +1,4 @@
-Chapter 6: Enhancing Relationships: The Impact of Emotional Intelligence on Relationships
-=========================================================================================
+# The Impact of Emotional Intelligence on Relationships
 
 Emotional intelligence plays a critical role in building and maintaining positive relationships. In this chapter, we will discuss the impact of emotional intelligence on relationships.
 

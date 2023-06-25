@@ -1,5 +1,4 @@
-Chapter 2: Understanding Emotional Intelligence: Components of Emotional Intelligence
-=====================================================================================
+# Components of Emotional Intelligence
 
 Emotional intelligence is a key factor in personal growth and happiness. In this chapter, we will explore the components of emotional intelligence.
 
