@@ -6,5 +6,4 @@ Through real-life examples and exercises, you'll learn how to manage your emotio
 
 With its engaging writing style and accessible approach to complex concepts, this book is perfect for anyone seeking to improve their emotional intelligence skills and achieve greater personal growth and happiness. Whether you're just starting out on your personal development journey or are an experienced practitioner, "The Power of Emotional Intelligence" is an essential resource for unlocking your full potential and living your best life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
