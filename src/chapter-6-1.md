@@ -1,4 +1,4 @@
-Chapter: The Impact of Emotional Intelligence on Relationships
+The Impact of Emotional Intelligence on Relationships
 ==============================================================
 
 In this chapter, we will explore the profound impact of emotional intelligence on relationships and how it contributes to personal growth and happiness. Emotional intelligence plays a crucial role in fostering healthy connections, understanding others' emotions, resolving conflicts, and building fulfilling relationships. Through this chapter, you will gain insights into the power of emotional intelligence in enhancing and nurturing your relationships.

@@ -1,4 +1,4 @@
-Chapter: Strategies for Increasing Resilience Through Emotional Intelligence
+Strategies for Increasing Resilience Through Emotional Intelligence
 ============================================================================
 
 In this chapter, we will explore strategies for increasing resilience through the practice of emotional intelligence. Resilience is the ability to bounce back from adversity and maintain well-being in the face of challenges. By cultivating emotional intelligence, individuals can develop the skills necessary to enhance their resilience and thrive in difficult times.

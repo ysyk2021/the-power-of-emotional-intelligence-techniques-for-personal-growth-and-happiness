@@ -1,4 +1,4 @@
-Chapter: Strategies for Developing Empathy
+Strategies for Developing Empathy
 ==========================================
 
 In this chapter, we will explore strategies for developing empathy, a crucial aspect of emotional intelligence. Empathy allows us to understand and share the emotions and perspectives of others, fostering deeper connections and enhancing our communication and relationship-building skills. By practicing these strategies, you can cultivate empathy and create a more compassionate and empathetic mindset.

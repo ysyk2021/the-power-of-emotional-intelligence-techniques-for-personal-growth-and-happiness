@@ -1,4 +1,4 @@
-Chapter: Components of Emotional Intelligence
+Components of Emotional Intelligence
 =============================================
 
 In this chapter, we will explore the components of emotional intelligence and how each aspect contributes to personal growth and happiness. Understanding these components will help you develop a comprehensive understanding of emotional intelligence and its practical implications in various aspects of life.

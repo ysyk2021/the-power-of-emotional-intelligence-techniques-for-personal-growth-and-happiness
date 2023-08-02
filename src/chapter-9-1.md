@@ -1,4 +1,4 @@
-Chapter: Common Obstacles to Emotional Intelligence
+Common Obstacles to Emotional Intelligence
 ===================================================
 
 In this chapter, we will explore the common obstacles that individuals face in developing and applying emotional intelligence techniques for personal growth and happiness. While emotional intelligence offers numerous benefits, there are certain challenges that may hinder its development. By understanding and addressing these obstacles, we can overcome them and cultivate greater emotional intelligence.

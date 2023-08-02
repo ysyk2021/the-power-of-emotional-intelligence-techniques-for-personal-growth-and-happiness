@@ -1,4 +1,4 @@
-Chapter: Defining Empathy
+Defining Empathy
 =========================
 
 In this chapter, we will explore and define empathy, a fundamental aspect of emotional intelligence. Empathy is the ability to understand and share the emotions, thoughts, and experiences of others. By grasping the essence of empathy, we can cultivate deeper connections, enhance our relationships, and promote personal growth and happiness.
