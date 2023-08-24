@@ -1,5 +1,3 @@
-Chapter 7: Improving Communication Skills
-=========================================
 
 Effective communication is a critical aspect of emotional intelligence and personal growth. It involves being able to express oneself clearly and listen actively to others. In this chapter, we will discuss the role of emotional intelligence in effective communication and techniques for improving communication skills.
 

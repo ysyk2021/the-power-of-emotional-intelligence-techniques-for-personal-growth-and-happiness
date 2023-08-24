@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to Emotional Intelligence
-=========================================================
 
 Developing emotional intelligence can face obstacles such as fear, limiting beliefs, and lack of motivation. In this chapter, we will discuss common obstacles to emotional intelligence and tips for overcoming them.
 

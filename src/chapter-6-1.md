@@ -1,5 +1,3 @@
-The Impact of Emotional Intelligence on Relationships
-==============================================================
 
 In this chapter, we will examine the profound impact that emotional intelligence has on our relationships. Developing and applying emotional intelligence skills can transform the way we interact with others, foster deeper connections, and contribute to healthier and more fulfilling relationships. By understanding and managing our emotions effectively, we can navigate relationship challenges, enhance communication, and cultivate empathy and understanding.
 

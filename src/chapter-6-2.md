@@ -1,5 +1,3 @@
-Strategies for Building Positive Relationships
-=======================================================
 
 In this chapter, we will explore strategies for building positive relationships as a means to personal growth and happiness. Developing emotional intelligence is crucial in fostering healthy connections with others, and this chapter will provide practical techniques and insights to help you cultivate and nurture fulfilling relationships.
 

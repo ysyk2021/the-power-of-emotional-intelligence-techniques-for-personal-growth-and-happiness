@@ -1,5 +1,3 @@
-Defining Emotional Intelligence
-========================================
 
 Emotional intelligence is a concept that encompasses the ability to recognize, understand, and manage our own emotions, as well as the emotions of others. In this chapter, we will delve into the definition and components of emotional intelligence, exploring how it contributes to personal growth and happiness.
 

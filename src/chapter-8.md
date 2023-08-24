@@ -1,5 +1,3 @@
-Chapter 8: Increasing Resilience
-================================
 
 Resilience is the ability to bounce back from adversity and challenges, and it is a critical component of emotional intelligence. In this chapter, we will define resilience and discuss strategies for increasing it through emotional intelligence.
 

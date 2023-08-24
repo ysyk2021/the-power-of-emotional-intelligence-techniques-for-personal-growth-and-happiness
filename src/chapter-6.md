@@ -1,5 +1,3 @@
-Chapter 6: Enhancing Relationships
-==================================
 
 Emotional intelligence is a critical component of building and maintaining positive relationships with others. In this chapter, we will discuss the impact of emotional intelligence on relationships and strategies for building them.
 

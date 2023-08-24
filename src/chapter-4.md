@@ -1,5 +1,3 @@
-Chapter 4: Managing Emotions
-============================
 
 Managing emotions is a critical component of emotional intelligence. It involves recognizing and regulating one's own emotions in healthy and productive ways. In this chapter, we will discuss understanding emotions and techniques for managing them.
 

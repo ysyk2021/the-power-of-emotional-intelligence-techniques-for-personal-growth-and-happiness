@@ -1,5 +1,3 @@
-Chapter 5: Developing Empathy
-=============================
 
 Empathy is a critical component of emotional intelligence, and it involves the ability to understand and relate to the emotions of others. In this chapter, we will define empathy and discuss strategies for developing it.
 
